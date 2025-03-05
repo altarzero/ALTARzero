@@ -1,4 +1,5 @@
 <h5 align="center">
+  hi this is outdated and is being redone as a new theme with a bunch of new stuff! My best friend Himu is helping, HUUUGE shout out to him!! PLEASE SUPPORT HIMU ON TUMBLR @ awnglbun AND BUN'S GROUP BLOG @ MIKNEUTETO
 <img src="https://64.media.tumblr.com/c5a1a809dac7e128b2c98343ea301050/ca6818333059b6b1-e4/s2048x3072/931b7ed65d4f42c6eead44c8e405fac8167daf72.pnj"/>
 <img src="https://64.media.tumblr.com/dd63ec87d4163f4fa4a1d0c21094cf72/ca6818333059b6b1-40/s1280x1920/93e6cd406225fec1f1091a0d7887897c8e660ab4.pnj"/>
 
