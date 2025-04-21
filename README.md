@@ -11,12 +11,13 @@
   $${\color{#fcfcfc}"\space As \space you \space march \space towards \space your \space death \space "}$$
 <h5/>
 
-  They Them						          Metalhead!
+<h5 align="center">  They Them						          Metalhead!
                   ｡ﾟﾟ･｡･ﾟﾟ｡
                   ﾟ。 29/12/24  
                   　ﾟ･｡･
-♥*♡∞:｡.｡　Minor						       OSDD-1A　｡.｡:∞♡*♥ </h5>
+
+  ♥*♡∞:｡.｡　Minor						       OSDD-1A　｡.｡:∞♡*♥ </h5>
       <h5 align="center">✎﹏[I am Flora](https://rentry.co/mualami)
-      ✎﹏[He is my Fauna...](https://rentry.co/dandylionraby)</h5
+      ✎﹏[He is my Fauna...](https://rentry.co/dandylionraby)
   
 <h5/>
