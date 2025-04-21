@@ -1,4 +1,4 @@
-<h5 align="center">
+<h5 align="left">
 <img src="https://64.media.tumblr.com/01630f79d47253a6aee5ab2640430043/64df87b193de6a0a-32/s1280x1920/84e12574abb8077fbddb84764cb8a13fa4dd9654.gifv"/>
 <h5/>
   $${\color{#caaba9}"\space One \space day \space the \space only \space butterflies \space left \space will \space be \space in \space your \space chest \space"}$$
@@ -11,6 +11,12 @@
   $${\color{#fcfcfc}"\space As \space you \space march \space towards \space your \space death \space "}$$
 <h5/>
 
-stupid wip
+  They Them						          Metalhead!
+                  ｡ﾟﾟ･｡･ﾟﾟ｡
+                  ﾟ。 29/12/24  
+                  　ﾟ･｡･
+♥*♡∞:｡.｡　Minor						       OSDD-1A　｡.｡:∞♡*♥ </h5>
+      <h5 align="center">✎﹏[I am Flora](https://rentry.co/mualami)
+      ✎﹏[He is my Fauna...](https://rentry.co/dandylionraby)</h5
   
 <h5/>
