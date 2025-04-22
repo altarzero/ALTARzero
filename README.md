@@ -11,13 +11,17 @@
   $${\color{#fcfcfc}"\space As \space you \space march \space towards \space your \space death \space "}$$
 <h5/>
 
-<h5 align="center">  They Them						          Metalhead!
-                  ｡ﾟﾟ･｡･ﾟﾟ｡
-                  ﾟ。 29/12/24  
-                  　ﾟ･｡･
 
-  ♥*♡∞:｡.｡　Minor						       OSDD-1A　｡.｡:∞♡*♥ </h5>
-      <h5 align="center">✎﹏[I am Flora](https://rentry.co/mualami)
-      ✎﹏[He is my Fauna...](https://rentry.co/dandylionraby)
-  
+<h5 align="center"> The moon of the dark art, Astronomid. <h5/>
+
+<h5 align="center">                  ｡ﾟﾟ･｡･ﾟﾟ｡
+  <h5 align="center">                  . 29 /12 /24 
+    <h5 align="center">                  　ﾟ･｡･ 
+
+<h5 align="center"> ⁺  call⠀us ..   Zae !  They  ╱  Them   ❞
+
 <h5/>
+<h5 align="center"> Ace　₊ andro-cetro triphic
+
+
+[ᴰᵒ ⁿᵒᵗ ᶜˡᵃᶦᵐ ᵃˢ ʸᵒᵘʳ ᵒʷⁿ](https://github.com/404-dearly)<h5/>
