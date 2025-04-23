@@ -12,7 +12,7 @@
 <h5/>
 
 
-<h5 align="center"> The moon of the dark art, Astronomid. <h5/>
+<h5 align="center"> The moon of the dark art, Astro Novalite. <h5/>
 
 <h5 align="center">                  ｡ﾟﾟ･｡･ﾟﾟ｡
   <h5 align="center">                  . 29 /12 /24 
